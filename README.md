@@ -8,7 +8,7 @@
 
  O⁠_⁠o| hi! i am FilipinoRadioheadNirvanaFan (stupid ahh user) 
 
-##feel free to read ts as that I'm listing and seperating SOME sections🤷‍♀️
+#feel free to read ts as that I'm listing and seperating SOME sections🤷‍♀️
  
 /1 as you can clearly tell from my username yes I am a Radiohead and Nirvana fan! 
 
