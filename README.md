@@ -14,9 +14,11 @@
 
   🍀/2 i have multiple  hyperfixations/interests so i count as a multifandomer lol
 
-  🍎/3 yes i am known in ponytown LMAO so technically you would know me for this username ig
+  🍎/3 yes i am known in ponytown and i play the game everyday LMAO so technically you would know me for this username ig
 
-  🎸/4 i like music bands in general! feel free to talk to me abt any of it 🙏
+ 🤷‍♀️/4 i love Radiohead, Nirvana, Tyler the creator, Mitski, Maretu, Gorillaz, Etc!
+
+  🎸/5 i like music bands in general! feel free to talk to me abt any of it 🙏
 ---
 
   ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan/blob/f4b2511f3f57482f76c3d33fe4a609128f075e5c/ThomYorkeAppearance.jpg)
