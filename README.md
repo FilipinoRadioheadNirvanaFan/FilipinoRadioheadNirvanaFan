@@ -16,7 +16,7 @@
 
   🍎/3 yes i am known in ponytown and i play the game everyday LMAO so technically you would know me for this username ig
 
- 🤷‍♀️/4 i love Radiohead, Nirvana, Tyler the creator, Mitski, Maretu, Gorillaz, Etc!
+ 🤷‍♀️/4 i like Radiohead, Nirvana,Greenday, MCR, MSI, The Cardigans, The Cranberries, The Beatles, Kikuo, Oasis, Blur, Tv girl, Lemon Demon, Femtanyl, Graham kartna, Oliver buckland, Tyler the Creator, Mitski, Maretu, Gorillaz, Etc!
 
   🎸/5 i like music bands in general! feel free to talk to me abt any of it 🙏
 ---
