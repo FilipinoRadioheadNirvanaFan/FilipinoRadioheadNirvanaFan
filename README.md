@@ -21,8 +21,9 @@
 
   ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan/blob/f4b2511f3f57482f76c3d33fe4a609128f075e5c/ThomYorkeAppearance.jpg)
 
-+
+ + 
 
   ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan/blob/0bc10cba4c3b548b1c88f100382e6a8b98016759/Kurt-Cobain-Style-Photo-Plaid-Jacket.jpg)
 
+love them both:D
 "Description will be updated sometimes"
