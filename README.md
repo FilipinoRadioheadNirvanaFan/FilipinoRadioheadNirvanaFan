@@ -11,8 +11,7 @@
 
 ## feel free to read ts as that I'm listing and seperating SOME sections🤷‍♀️
 
-!https://cdn.discordapp.com/attachments/1371076995303084094/1384803242378137661/kurt-cobain-nirvana.gif?ex=685ef6c5&is=685da545&hm=13100fbc6d9150ead0d246b55b09bdb1863d55592058bed9859cd99ed25fa356&
---- 
+---
   `’/1 as you can clearly tell from my  username yes I am a Radiohead and    Nirvana fan! (and a Filipino)
 
   °./2 i have multiple  hyperfixations/interests, a section about it in "/4" lol
