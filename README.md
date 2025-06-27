@@ -5,7 +5,7 @@
 
 ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/Say-hello-to-FilipinoRadioheadNirvanaFan-/blob/0adbf82cf1117bce8ddeecf84e6e141c7e2a2ff2/Screenshot_2025-05-24-11-13-59-287_com.android.chrome-edit.jpg)
 
- profile views🤔 [![HitCount](https://hits.dwyl.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan.svg?style=flat-square)](http://hits.dwyl.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan)
+[![HitCount](https://hits.dwyl.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan.svg?style=flat-square)](http://hits.dwyl.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan)
 
  O⁠_⁠o🌱 | hi! i am FilipinoRadioheadNirvanaFan (stupid ahh user) 
 
