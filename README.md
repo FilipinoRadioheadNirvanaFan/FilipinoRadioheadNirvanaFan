@@ -11,15 +11,15 @@
 
 ## feel free to read ts as that I'm listing and seperating SOME sections🤷‍♀️
 --- 
-  💥/1 as you can clearly tell from my  username yes I am a Radiohead and    Nirvana fan! 
+  `’/1 as you can clearly tell from my  username yes I am a Radiohead and    Nirvana fan! (and a Filipino)
 
-  🍀/2 i have multiple  hyperfixations/interests so i count as a multifandomer lol
+  °./2 i have multiple  hyperfixations/interests, a section about it in "/4" lol
 
-  🍎/3 yes i am known in ponytown and i play the game everyday LMAO so technically you would know me for this username ig
+  `./3 yes i am known in ponytown and i play the game everyday LMAO so you can see me mainly near bakery or near marvel area!
 
- 🤷‍♀️/4 i like Radiohead, Nirvana, Greenday, Weezer, SOAD, MCR, MSI, The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Mitski, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Sewerslvt, Etc!
+ `|”/4 i like Radiohead, Nirvana, Greenday, Weezer, SOAD, MCR, MSI, The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Mitski, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Sewerslvt, Etc!
 
-  🎸/5 i like music bands in general! feel free to talk to me abt any of it 🙏
+  `°./5 i like music bands in general! feel free to talk to me abt any of it 🙏
 ---
 
   ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan/blob/f4b2511f3f57482f76c3d33fe4a609128f075e5c/ThomYorkeAppearance.jpg)
