@@ -18,7 +18,11 @@
 
   `./3 yes i am known in ponytown and i play the game everyday LMAO so you can see me mainly near bakery or near marvel area!
 
- `|”/4 (MAINS) i like Radiohead, Nirvana, Greenday, Weezer, SOAD, MCR, and MSI,(Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Mitski, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Sewerslvt, Etc!
+ `|”/4 
+ 
+ (MAINS) i like Radiohead, Nirvana, Greenday, Weezer, SOAD, MCR, Mitski, and MSI,
+ 
+ (Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Sewerslvt, Etc!
 
   `°./5 i like music bands in general! feel free to talk to me abt any of it 🙏
 ---
