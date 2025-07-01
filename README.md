@@ -22,7 +22,7 @@
  
  (MAINS) i like Radiohead, Nirvana, Greenday, $\color{Cyan}\large{\textbf{Weezer}}$, SOAD, MCR, Mitski, and etc :p 
 
- (cartoons) The Simpsons, Family guy, South park, and Inside job! 
+ (cartoons) i like The Simpsons, Family guy, South park, and Inside job too! 
 
 | "I'm too lazy to put all of the cartoon fandoms I've joined🤧.."
  
@@ -36,6 +36,7 @@
 love them both:D 
 
 | (i wanna make fanart of them in the same room together LMAO)
+| dw chat I'll update it with the fanart on it🙏
 
   ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan/blob/0bc10cba4c3b548b1c88f100382e6a8b98016759/Kurt-Cobain-Style-Photo-Plaid-Jacket.jpg)
 - - -
