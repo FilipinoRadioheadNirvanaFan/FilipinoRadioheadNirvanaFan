@@ -20,7 +20,7 @@
 
  `|”/4 
  
- (MAINS) i like Radiohead, Nirvana, Greenday, Weezer, SOAD, MCR, Mitski, and etc :p 
+ (MAINS) i like Radiohead, Nirvana, Greenday, $\color{Cyan}\large{\textbf{Weezer}}$, SOAD, MCR, Mitski, and etc :p 
 
  (cartoons) The Simpsons, Family guy, South park, and Inside job! 
 
