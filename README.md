@@ -21,6 +21,9 @@
  `|”/4 
  
  (MAINS) i like Radiohead, Nirvana, Greenday, Weezer, SOAD, MCR, Mitski, and etc :p 
+
+ (cartoons) The Simpsons, Family guy, South park, and Inside job! 
+ "I'm too lazy to put all of the cartoon fandoms I've joined🤧.."
  
  (Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Sewerslvt, Etc!
 
@@ -29,8 +32,10 @@
 
   ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan/blob/f4b2511f3f57482f76c3d33fe4a609128f075e5c/ThomYorkeAppearance.jpg)
 
-love them both:D
+love them both:D 
+(i wanna make fanart of them in the same room together LMAO)
 
   ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/FilipinoRadioheadNirvanaFan/blob/0bc10cba4c3b548b1c88f100382e6a8b98016759/Kurt-Cobain-Style-Photo-Plaid-Jacket.jpg)
 - - -
 "Description will be updated sometimes"
+pretend that i winked heh
