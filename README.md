@@ -9,7 +9,7 @@
 
  O⁠_⁠o | hi! i am FilipinoRadioheadNirvanaFan (stupid ahh user) 
 
- if you don't like how immature i am you can kindly ask to me if you want to tone down the messages i do ! 
+ if you don't like how i sound immature at times you can kindly ask to me if you want to tone down the messages i do ! 
 
 ## feel free to read ts as that I'm listing and seperating SOME sections🤷‍♀️
 
