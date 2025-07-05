@@ -5,6 +5,8 @@
 
 ![image alt](https://github.com/FilipinoRadioheadNirvanaFan/Say-hello-to-FilipinoRadioheadNirvanaFan-/blob/0adbf82cf1117bce8ddeecf84e6e141c7e2a2ff2/Screenshot_2025-05-24-11-13-59-287_com.android.chrome-edit.jpg)
 
+![Hits](https://komarev.com/ghpvc/?username=FilipinoRadioheadNirvanaFan&label=Views&style=flat)
+
 "[tally w/the hall/sign socials!] whispers: thats it we are getting icereams"
 
  O⁠_⁠o | hi! i am FilipinoRadioheadNirvanaFan (stupid ahh user) 
