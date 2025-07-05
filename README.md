@@ -14,11 +14,14 @@
 ## feel free to read ts as that I'm listing and seperating SOME sections🤷‍♀️
 
 ---
+
+   /0 honestly I'm not surprised either that you're gonna see Radiohead and Nirvana stuff around here😒
+ 
   `’/1 as you can clearly tell from my  username yes I am a Radiohead and    Nirvana fan! (and a Filipino)
 
   °./2 i have multiple  hyperfixations/interests, a section about it in "/4" lol
 
-  `/3 i make ponies of albums, musicians, and stuff for a living, i like to do fanarts and animations aswell especially when it's Nirvana or Radiohead..:1 
+# `/3 i make ponies of albums, musicians, and stuff for a living, i like to do fanarts and animations aswell especially when it's Nirvana or Radiohead..:1 
 
   `./4 yes i am known in ponytown and i play the game everyday LMAO so you can see me mainly near bakery, near the marvel area, or the barrels near the tf2 area ! 
 
