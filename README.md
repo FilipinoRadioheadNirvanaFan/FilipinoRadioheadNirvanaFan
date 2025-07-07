@@ -21,7 +21,7 @@
  
   `’/1 as you can clearly tell from my  username yes I am a Radiohead and    Nirvana fan! (and a Filipino)
 
-  °./2 i have multiple  hyperfixations/interests, a section about it in "/4" lol
+  °./2 i have multiple  hyperfixations/interests, a section about it in "/5" lol
 
 # `/3 i make ponies of albums, musicians, and stuff for a living, i like to do fanarts and animations aswell especially when it's Nirvana or Radiohead..:1 
 
