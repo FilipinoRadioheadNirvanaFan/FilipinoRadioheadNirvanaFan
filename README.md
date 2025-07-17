@@ -35,7 +35,7 @@
 
 | "I'm too lazy to put all of the cartoon fandoms I've joined🤧.."
  
- (Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Sewerslvt, Etc!
+ (Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Otis McDonald, Sewerslvt, Etc!
 
   `°./6 i like music bands in general! feel free to talk to me abt any of it 🙏
 ---
