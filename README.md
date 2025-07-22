@@ -29,13 +29,13 @@
 
  `|”/5 
  
- (MAINS) i like Radiohead, Nirvana, Greenday, $\color{Cyan}\large{\textbf{Weezer}}$, SOAD, MCR, Mitski, and etc :p 
+ (MAINS) i like Radiohead, Nirvana, Greenday, $\color{Cyan}\large{\textbf{Weezer}}$, SOAD, MCR, Mitski, Maretu, Kikuo and etc :p 
 
- (cartoons) i like The Simpsons, Family guy, South park, and Inside job too! 
+ (cartoons) i like The Simpsons, Family guy, South park, Moral orel, Futurama and Inside job too! 
 
 | "I'm too lazy to put all of the cartoon fandoms I've joined🤧.."
  
- (Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Oliver buckland, Tyler the Creator, Maretu, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Otis McDonald, Sewerslvt, Etc!
+ (Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Frenesi, Oliver buckland, Tyler the Creator, Crxw, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Otis McDonald, Sewerslvt, Etc!
 
   `°./6 i like music bands in general! feel free to talk to me abt any of it 🙏
 ---
