@@ -29,7 +29,7 @@
 
  `|”/5 
  
- (MAINS) for bands and musicians, i like Radiohead, Nirvana,$\color{Cyan}\large{\textbf{Weezer}}$, System of a down, Mitski, ABBA, Aphex Twin, Sophie Xeon, Death Grips, Dj Sharpnel, Rory in Early 20's, Janis Joplin, Amy Winehouse, Jimi Hendrix experience, and etc :p 
+ (MAINS) for bands and musicians, i like Radiohead, Nirvana, $\color{Cyan}\large{\textbf{Weezer}}$, System of a down, Mitski, ABBA, Aphex Twin, Sophie Xeon, Death Grips, Dj Sharpnel, Rory in Early 20's, Janis Joplin, Amy Winehouse, Jimi Hendrix experience, and etc :p 
 
  (Special Interests:) I love Jean Michel Basquiat, Keith Haring, And then the 27 Club!! (they're my huge Obsessions :D)
 
