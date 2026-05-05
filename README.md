@@ -29,13 +29,15 @@
 
  `|”/5 
  
- (MAINS) i like Radiohead, Nirvana, Greenday, $\color{Cyan}\large{\textbf{Weezer}}$, SOAD, MCR, Mitski, Maretu, Kikuo and etc :p 
+ (MAINS) for bands and musicians, i like Radiohead, Nirvana,$\color{Cyan}\large{\textbf{Weezer}}$, System of a down, Mitski, ABBA, Aphex Twin, Sophie Xeon, Death Grips, Dj Sharpnel, Rory in Early 20's, Janis Joplin, Amy Winehouse, Jimi Hendrix experience, and etc :p 
 
- (cartoons) i like The Simpsons, Family guy, South park, Moral orel, Futurama and Inside job too! 
+ (Special Interests:) I love Jean Michel Basquiat, Keith Haring, And then the 27 Club!! (they're my huge Obsessions :D)
+
+ (cartoons) i like The Simpsons, Family guy, South park, Moral orel, Futurama, Bojack Horseman, and Inside job too! 
 
 | "I'm too lazy to put all of the cartoon fandoms I've joined🤧.."
  
- (Others) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Lemon Demon, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Rory in early 20's,Guns n roses, Frenesi, Oliver buckland, Tyler the Creator, Crxw, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Pixies, Machine girl, Otis McDonald, Sewerslvt, Etc!
+ (Other bands and musicians) i like The Cardigans, The Cranberries, The Beatles,Tv girl, Femtanyl, Graham kartna, Lapfox, Temporex, Jack Stauber, Goreshit, Guns n roses, Frenesi, Oliver buckland, Tyler the Creator, Crxw, Gorillaz, Sir-mix-alot, Sublime, Bloodhound gang, Talking heads, Metaroom, Linkin park, Limp bizkit, Alex g, Machine girl, Otis McDonald, Sewerslvt, Michael Jackson, Madonna, Whitney Houston, MF DOOM, Etc!
 
   `°./6 i like music bands in general! feel free to talk to me abt any of it 🙏
 ---
