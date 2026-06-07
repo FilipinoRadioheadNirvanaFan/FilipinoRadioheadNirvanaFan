@@ -11,7 +11,10 @@
 
  O⁠_⁠o | hi! i am FilipinoRadioheadNirvanaFan (stupid ahh user) 
 
- if you don't like how i sound immature at times you can kindly ask to me if you want to tone down the messages i do ! 
+# SHOUTOUT TO @BASQUIATLOVER043 ON TIKTOK FOR BEING A JEAN-MICHEL BASQUIAT AND KEITH HARING FAN 🥹
+
+
+Im very childish so please note that if you think I'm annoying</3
 
 ## feel free to read ts as that I'm listing and seperating SOME sections🤷‍♀️
 
