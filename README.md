@@ -34,7 +34,7 @@ Im very childish so please note that if you think I'm annoying</3
  
  (MAINS) for bands and musicians, i like Radiohead, Nirvana, $\color{Cyan}\large{\textbf{Weezer}}$, System of a down, Mitski, ABBA, Aphex Twin, Sophie Xeon, Death Grips, Dj Sharpnel, Rory in Early 20's, Janis Joplin, Amy Winehouse, Jimi Hendrix experience, and etc :p 
 
- (Special Interests:) I love Jean Michel Basquiat, Keith Haring, And then the 27 Club!! (they're my huge Obsessions :D)
+ (Special Interests:) I love Jean Michel Basquiat, Keith Haring,I ALSO LOVE ART HISTORY SOOO MUCH I'm a NERD ok, And then the 27 Club!! (they're my huge Obsessions :D)
 
  (cartoons) i like The Simpsons, Family guy, South park, Moral orel, Futurama, Bojack Horseman, and Inside job too! 
 
